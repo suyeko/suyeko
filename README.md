@@ -1,16 +1,28 @@
-## Hi there 👋
+### bem vindo ao meu perfil 🖤
 
-<!--
-**suyeko/suyeko** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Nicole Suyeko
 
-Here are some ideas to get you started:
+•Estou estudando na Alura;👩🏽‍🎓(https://www.alura.com.br)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+•Estou me desenvolvendo na linguagem JavaScript🎮
+
+•Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos💻📺📚
+
+
+
+### Voce pode entrar em contanto comigo: gmail.com 📮✉️ e Instagram ⭐💜
+
+gmail.com 📮✉️
+* suyekonicole342111142gmail.com
+
+ 
+Instagram ⭐💜
+ • @suyeko_
+
+### informações sobre mim
+
+•data de nascimento 16/07/2007🔆
+
+•sou do signo de câncer ♊
+
+•Gosto de assistir série e me maquiar🥰
